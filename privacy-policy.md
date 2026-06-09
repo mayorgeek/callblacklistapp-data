@@ -53,4 +53,4 @@ We may update this Privacy Policy from time to time. Changes will be reflected b
 
 ## Contact Us
 
-If you have questions about this Privacy Policy, contact us at: **[your-email@example.com]**
+If you have questions about this Privacy Policy, contact us at: **[support@aiotouchsoftwares.com]**
